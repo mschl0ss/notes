@@ -1,5 +1,5 @@
 There are 4 types of cat sustenance
-* Water - ideally always full of clean water
+- Water - ideally always full of clean water
 - Wet food - every morning
 - Dry food - always
 - Snackies - whenever
