@@ -6,8 +6,6 @@ There are 4 types of cat sustenance
 
 Every morning, clean out their wet/food snack bowls, refresh their water, and top off their dry food.
 
-![cat food](https://github.com/mschl0ss/notes/assets/49730650/a139a978-486f-457d-9be9-9d6d33be45c9)
-
 # Water
 We got them a cat fountain thingy. It's in the dining room. Just make sure there's water in it and if it's gross change out the water and give it a rinse. There's nothing complicated really to the device, just change it out over the sink because it can unexpectedly spill. 
 
