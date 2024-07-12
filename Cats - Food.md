@@ -1,5 +1,5 @@
 There are 4 types of cat sustenance
-- Water - ideally always full of clean water
+- Water - ideally will get refreshed once
 - Wet food - every morning
 - Dry food - always
 - Snackies - whenever
@@ -9,7 +9,11 @@ Every morning, clean out their wet/food snack bowls, refresh their water, and to
 ![cat food](https://github.com/mschl0ss/notes/assets/49730650/a139a978-486f-457d-9be9-9d6d33be45c9)
 
 # Water
-Just a regular bowl full of clean cold water. They will make it gross pretty quickly.  Ideally refresh every night and every morning.
+We got them a cat fountain thingy. It's in the dining room. Just make sure there's water in it and if it's gross change out the water and give it a rinse. There's nothing complicated really to the device, just change it out over the sink because it can unexpectedly spill. 
+
+One time I changed the water and put it back and the water was somehow not coming out and I didn't notice for a while. The cats were non plussed.
+
+<img width="553" alt="image" src="https://github.com/user-attachments/assets/86fae8b5-c974-4f52-805e-c85af7d4d584">
 
 # Wet Food
 They get this every morning.  Take one of the Blue Wilderness tins out of the pantry and split it between the two wet food/snack bowls. They *will* get in your way and meow at you. It *will* piss you right off after it stops being cute.
