@@ -17,7 +17,8 @@ One time I changed the water and put it back and the water was somehow not comin
 
 # Wet Food
 They get this every morning.  Take one of the Blue Wilderness tins out of the pantry and split it between the two wet food/snack bowls. They *will* get in your way and meow at you. It *will* piss you right off after it stops being cute.
-![IMG_1370](https://github.com/mschl0ss/notes/assets/49730650/2054906f-3886-4d09-8a56-8d0a3fa56b60)
+
+<img width="799" alt="image" src="https://github.com/user-attachments/assets/f55d62dc-3a0f-4863-a4c3-e9865692ff2d">
 
 # Dry Food
 They should always have this available. Just about a pinkies width layer of food in the bowl.  *Not too much!* When they eat this a bunch gets back in the bowl and then they don't want it, and probably Otis will puke in it as a protest to not having fresh food. If it's totally empty when you get home at night or in the morning, then fine do a little more.
