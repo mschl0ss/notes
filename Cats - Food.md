@@ -7,19 +7,19 @@ There are 4 types of cat sustenance
 Every morning, clean out their wet/food snack bowls, refresh their water, and top off their dry food.
 
 # Water
-We got them a cat fountain thingy. It's in the dining room. Just make sure there's water in it and if it's gross change out the water and give it a rinse. There's nothing complicated really to the device, just change it out over the sink because it can unexpectedly spill. 
+We got them a cat fountain thingy. Just make sure there's water in it and if it's gross change out the water and give it a rinse. There's nothing complicated really to the device, just change it out over the sink because it can unexpectedly spill. 
 
 One time I changed the water and put it back and the water was somehow not coming out and I didn't notice for a while. The cats were non plussed.
 
 <img width="553" alt="image" src="https://github.com/user-attachments/assets/86fae8b5-c974-4f52-805e-c85af7d4d584">
 
 # Wet Food
-They get this every morning.  Take one of the Blue Wilderness tins out of the pantry and split it between the two wet food/snack bowls. They *will* get in your way and meow at you. It *will* piss you right off after it stops being cute.
+They get this every morning.  Take one of the Purina tins out of the pantry and split it between the two wet food/snack bowls.
 
 <img width="799" alt="image" src="https://github.com/user-attachments/assets/f55d62dc-3a0f-4863-a4c3-e9865692ff2d">
 
 # Dry Food
-They should always have this available. Just about a pinkies width layer of food in the bowl.  *Not too much!* When they eat this a bunch gets back in the bowl and then they don't want it, and probably Otis will puke in it as a protest to not having fresh food. If it's totally empty when you get home at night or in the morning, then fine do a little more.
+They should always have this available. Just about a pinkies width layer of food in the bowl.
 
 # Snackies
-Whenever they're suspiciously gathering around their food bowls and meowing. About 10-15? each is a normal serving.  Like more than 3 but not a whole meal.
+Whenever they're suspiciously gathering around their food bowls and meowing. About 5-10? each is a normal serving.  Like more than 3 but not a whole meal.
